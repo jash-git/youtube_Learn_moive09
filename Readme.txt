@@ -3,7 +3,7 @@ Hacks DC Motor
 	7 Incredible Gadgets You Can Make At Home | Life Hacks DC Motor[電鋸,電動攪拌器,電鑽,砂輪機,電動火柴點火,電風扇]
 		https://www.youtube.com/watch?v=YA1t7SXjBZI
 		
-	3 Simple Life Hacks With DC Motor and Fanta can
+	3 Simple Life Hacks With DC Motor and Fanta can [電動打氣機,瓶蓋自走車]
 		https://www.youtube.com/watch?v=QJFTfKqhjCM
 		
 	TOP 5 Best Life Hacks for DC Motor
