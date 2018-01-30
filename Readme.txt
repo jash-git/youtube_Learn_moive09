@@ -6,7 +6,7 @@ Hacks DC Motor
 	3 Simple Life Hacks With DC Motor and Fanta can [電動打氣機,瓶蓋自走車]
 		https://www.youtube.com/watch?v=QJFTfKqhjCM
 		
-	TOP 5 Best Life Hacks for DC Motor
+	TOP 5 Best Life Hacks for DC Motor[手動手機充電器(馬達=發電機),自製風力電動船,電鑽]
 		https://www.youtube.com/watch?v=MKz7Xk1boWs
 		
 	Top 5 Best Life Hacks for DC Motor - DC Motor Life Hacks
