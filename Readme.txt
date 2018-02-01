@@ -12,7 +12,7 @@ Hacks DC Motor
 	Top 5 Best Life Hacks for DC Motor - DC Motor Life Hacks[電動旋轉螢光棒,9V小電扇,電動攪拌杯,電動刷子機器人]
 		https://www.youtube.com/watch?v=-F4hNrYytEU
 		
-	DC motor 3 Best Life Hacks for DC MOTOR
+	DC motor 3 Best Life Hacks for DC MOTOR[電鑽,電扇,攪拌器]
 		https://www.youtube.com/watch?v=E8L1S0Vl2YY
 		
 	2 Awesome Life Hacks for DC Motor
