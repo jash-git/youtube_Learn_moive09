@@ -18,7 +18,7 @@ Hacks DC Motor
 	2 Awesome Life Hacks for DC Motor[電動膠蓋發射器,電動選轉盤展示架]
 		https://www.youtube.com/watch?v=XY-1kanVuNA
 		
-	4 awesome life hacks with dc motor |life hack dc motor| |dc motor life hacks| 2017
+	4 awesome life hacks with dc motor |life hack dc motor| |dc motor life hacks| 2017[小電扇,電動磨刀器]
 		https://www.youtube.com/watch?v=lm4ZM0zNhMs
 		
 	2 Incredible Gadgets From DC Motor - DC Motor Life Hacks	
