@@ -21,7 +21,7 @@ Hacks DC Motor
 	4 awesome life hacks with dc motor |life hack dc motor| |dc motor life hacks| 2017[小電扇,電動磨刀器]
 		https://www.youtube.com/watch?v=lm4ZM0zNhMs
 		
-	2 Incredible Gadgets From DC Motor - DC Motor Life Hacks	
+	2 Incredible Gadgets From DC Motor - DC Motor Life Hacks[小電扇(自動吹泡泡機),電動打磨機]
 		https://www.youtube.com/watch?v=ilaZi-bdA8c
 		
 	AWESOME Life Hack - How to make a Mini Tattoo Machine using DC Motor and Pen at home (DIY)
