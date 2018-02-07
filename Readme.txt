@@ -1,5 +1,4 @@
 Hacks DC Motor
-
 	7 Incredible Gadgets You Can Make At Home | Life Hacks DC Motor[電鋸,電動攪拌器,電鑽,砂輪機,電動火柴點火,電風扇]
 		https://www.youtube.com/watch?v=YA1t7SXjBZI
 		
@@ -24,18 +23,14 @@ Hacks DC Motor
 	2 Incredible Gadgets From DC Motor - DC Motor Life Hacks[小電扇(自動吹泡泡機),電動打磨機]
 		https://www.youtube.com/watch?v=ilaZi-bdA8c
 		
-	AWESOME Life Hack - How to make a Mini Tattoo Machine using DC Motor and Pen at home (DIY)
+	AWESOME Life Hack - How to make a Mini Tattoo Machine using DC Motor and Pen at home (DIY)[刺青繪圖筆(圓周運動變直線來回運動)]
 		https://www.youtube.com/watch?v=j4RHDtGcOw8
 		
 	3 incredible ideas and Awesome DIY Projects	
 		https://www.youtube.com/watch?v=0CFFKHFRDtE
 
-	5件驚人的紙板東西，你可以在家裡做
-		https://www.youtube.com/watch?v=dKBk4Bkxpr4
-	
-	
+		
 Syringe Hacks
-
 	4 Awesome Syringe Life Hacks
 		https://www.youtube.com/watch?v=2sxIUXEVCJc
 		
@@ -69,34 +64,52 @@ Syringe Hacks
 	Top Six Best Life Hacks for Syringe - Syringe Life Hacks
 		https://www.youtube.com/watch?v=bxIrnVof43w
 		
+	5件驚人的紙板東西，你可以在家裡做
+		https://www.youtube.com/watch?v=dKBk4Bkxpr4		
+	
+	
 Hacks Battery
 	How To Make a Powerful Electric Lighter at Home Using Battery
 		https://www.youtube.com/watch?v=7GzEg0cldB8
+	
 	9 Awesome Life Hacks for Battery
 		https://www.youtube.com/watch?v=uNp8wqzznxk
+	
 	8 BATTERY LIFE HACKS
 		https://www.youtube.com/watch?v=u4AcGo3VYaI
+	
 	4 Simples Life Hacks con Pilas | DIY
 		https://www.youtube.com/watch?v=MxgkQqqer4A
+	
 	6 Life Hacks for Battery YOU SHOULD KNOW
 		https://www.youtube.com/watch?v=EbKoDD97r9k
+	
 	3 Incredible Life Hacks for Battery
 		https://www.youtube.com/watch?v=W2t-_q2OP-g
+	
 	10 BEST BATTERY LIFE HACKS
 		https://www.youtube.com/watch?v=CoF6b2yzNe8
+	
 	22 USEFUL HACKS WITH BATTERIES AND MAGNETS
 		https://www.youtube.com/watch?v=lB6wZdY_Tzc
+	
 	2 Awesome Life Hacks for Battery
 		https://www.youtube.com/watch?v=0Hi1GUqA80A
+	
 	4 Awesome Life Hacks for BATTERY
 		https://www.youtube.com/watch?v=GWKFbpSyIDM
+	
 	8 BATTERY LIFE HACKS
 		https://www.youtube.com/watch?v=wAI5540uQDw
+	
 	3 Awesome Life Hacks for Battery
 		https://www.youtube.com/watch?v=PVL3pYPNVrQ
+	
 	7 Awesome Life Hacks for Battery
 		https://www.youtube.com/watch?v=eRoDMnjSAvc
+	
 	6 Life Hacks for Battery YOU SHOULD KNOW
 		https://www.youtube.com/watch?v=zeG3QYHULho
+	
 	5 Survival Car Battery Life Hacks
 		https://www.youtube.com/watch?v=CmxR1V5nrCk
